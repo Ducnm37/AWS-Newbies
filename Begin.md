@@ -1,5 +1,3 @@
-# huh__________(\_/)
-
 # Holy Crap   ( ^.^ )
 
 ## Hello my nickname is PAC
